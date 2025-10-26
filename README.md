@@ -1,1 +1,1 @@
-For more notes or books, kindly visit: https://goalkicker.com/
+For more notes or books kindly visit: https://goalkicker.com/
